@@ -1,1 +1,2 @@
-# Buy-powder-for-sale
+# Buy Powder For Sale
+[Buy Alprazolam powder for sale](https://researchemicalsforsale.com), sold under the brand name Xanax, among others, is a fast-acting tranquilizer of medium duration in the triazolobenzodiazepine class, which are benzodiazepines fused with a triazole ring. It is most commonly used in short-term management of anxiety disorders, specifically panic disorder or generalized anxiety disorder. Other uses include the treatment of chemotherapy-induced nausea, together with other treatments. GAD improvement occurs generally within a week. Alprazolam is generally taken by mouth.
